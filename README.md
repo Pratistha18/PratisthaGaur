@@ -18,4 +18,4 @@ Bachelor of Engineering and Technology, Ramaiah University of Applied Sciences (
 I hold a particular fascination for the convergence of computer vision and deep learning. Additionally, I am deeply committed to the exploration of methods to enhance the transparency and ethical integrity of artificial intelligence systems.
 
 🤝 Get in Touch
-I am wholeheartedly enthusiastic about the prospect of collaborating on novel projects and learning from fellow developers and data aficionados. To initiate contact with me on LinkedIn or by sending an email to pratisthagaur18@gmail.com.
+I am wholeheartedly enthusiastic about the prospect of collaborating on novel projects and learning from fellow developers and data aficionados. To initiate contact with me on LinkedIn (linkedin.com/in/pratisthagaur) or by sending an email to pratisthagaur18@gmail.com.
